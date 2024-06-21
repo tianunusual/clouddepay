@@ -10,7 +10,7 @@
 
 --------------------------------------------------------------------
 ### Contact Me
-- E-mail：[admin@udian.net]
+- E-mail：[admin@mc.ci]
 - QQ Number：[577766600]
 - Telegram：[@udian](https://t.me/uidian)
 - Twitter：[@doogluo](https://twitter.com/doogluo)
@@ -19,17 +19,17 @@
 
 ### My group chat
 
-- QQ Group：[123402033](https://qm.qq.com/cgi-bin/qm/qr?k=Cx9noRs1fRVCz_BF86hR4SKeSdyLnjhh&jump_from=webapi&authKey=cybJHmy7wP0hk5OBAjgfZ55LsTcPDDvjHqVADFSoD+HiCrQdalAKHeT30kQWsFQb)
-- Telegram Group：[Udian丨资源交流群](https://t.me/udian6)
+- Telegram Group：[有点6️⃣丨资源交流群](https://t.me/udian6)
 
 
 ### belongs to us
 
 - *.9t.ee
-- *.upan.ee
-- *.ane.ee
-- *.uidian.net
-
+- *.mc.ci
+- *.ooonc.com
+- *.006661.xyz
+- *.005551.xyz
+- *.001231.xyz
 ---
 
 > [@Blog](https://blog.uidian.net) · [@Google](https://www.9t.ee) · [@网盘列表](https://drive.upan.ee) · 
